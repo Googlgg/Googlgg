@@ -1,3 +1,4 @@
+![IMG_20230621_182428_(256_x_256_пиксель)](https://github.com/Googlgg/Googlgg/assets/137306149/05b6a458-c9c6-44cb-a1c5-877cdf8b9b9c)
 ### Hi there 👋
 
 <!--
